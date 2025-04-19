@@ -32,5 +32,6 @@ Setting boundaries is an essential factor for establishing work-life balance. A 
 As women in  remote work, ensure that you communicate with your family regarding your schedule. Seek support in managing children in the house. Take regular breaks to ensure you are not sitting in a position for long hours. Dedicate going out for groceries or community work to engage outside the home. 
 
 Conclusion
+
 It is really difficult to achieve well-being as a remote worker without work-life balance. As we adapt to the new working environment the challenges it accompanies cannot be ignored. Smart work leads to a hassle-free life and work-life balance is a prominent example. Setting structured work schedules, prioritizing tasks, communicating and unwinding can aid in productivity while maintaining a good lifestyle. On the employer's side, equitable policies, fixed working hours and resource provision can support remote workers. Addressing these challenges and taking them head-on can help strengthen an equitable remote work environment. 
 
